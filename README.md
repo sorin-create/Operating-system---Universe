@@ -1,3 +1,4 @@
+<img width="1408" height="768" alt="1777588494758" src="https://github.com/user-attachments/assets/c1eb6bfd-e9a6-4baa-b276-5166fb57a7f9" />
 # Operating-system---Universe
 Dark matter,dark energy
 Materia intunecata,Energia Intunecata.
